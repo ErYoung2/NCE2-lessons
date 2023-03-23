@@ -19,3 +19,5 @@ PS: over, 在...之上         
 I like gardens too, but I do not like hard work. Every year enter for the garden competition too, and I always win a little prize for the worst garden in the town!
 
 我也喜欢花园，但我不喜欢收拾。每年我也参加花园竞选活动，但我总是喜提"最差花园"的微不足道的奖励!
+
+
