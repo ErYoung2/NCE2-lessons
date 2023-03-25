@@ -2,7 +2,7 @@ Postcards always spoil my holidays. Last summer, I went to Italy.
 
 明信片总是搅得我假日不得安宁，去年夏天，我去了意大利。
 
-    
+        
 
 
 
@@ -10,7 +10,7 @@ I visited museums and sat in public gardens. A friendly waiter taught me a few w
 
 我参观了博物馆并且坐在公共花园里。一位友善的服务员教了我几句意大利语，然后他借了我一本书。我读了几行，一个字也看不懂。每天我都想着明信片。 
 
-    
+        
 
 
 
