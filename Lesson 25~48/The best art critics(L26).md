@@ -4,15 +4,11 @@ I am an art student and I paint a lot of pictures. Many people pretend that they
 
     
 
-
-
 They are just pretty patterns. We like them in the same way that we like pretty curtain material. I think that young children often appreciate modern pictures better than anyone else. They notice more. My sister is only seven, but she always tells me whether my pictures are good or not. She came into my room yesterday.
 
 它们只是漂亮的图案。我们喜欢它们就像喜欢好看的窗帘材料一样。我觉得小孩子比其他人更喜欢现代图画。他们更关注于此。我妹妹只有7岁，但是她总是跟我说，我的画到底好不好。她昨天进了我的房间。
 
     
-
-
 
 ‘What are you doing?’ she asked.  
 ‘I'm hanging this picture on the wall, ’ I answered. ‘It's a new one. Do you like it?  

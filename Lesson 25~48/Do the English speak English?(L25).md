@@ -6,8 +6,6 @@ I arrived in London at last. The railway station was big, black and dark. I did 
 
     
 
-
-
 The porter, however, could not understand me. I repeated my question several times and at last he understood. He answered me, but he spoke neither slowly nor clearly. ‘I am a foreigner,’ I said. Then he spoke slowly, but I could not understand him. My teacher never spoke English like that!
 
 但是这个搬运工并不懂我说什么。我重复了好几次我的问题 ，最后他终于懂了。他回答我，但他说话既不仔细也不清晰。‘我是个外国人，’我说。然后他慢慢地说着，但我啥也听不懂。我的老师从来不这么说英语！
@@ -15,8 +13,6 @@ The porter, however, could not understand me. I repeated my question several tim
     
 
     
-
-
 
 The porter and I looked at each other and smiled. Then he said something and I understood it. ‘You'll soon learn English!’ he said. I wonder. In England, each person speaks a different language. The English understand each other, but I don't understand them! Do they speak English?
 
