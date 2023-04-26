@@ -74,48 +74,32 @@ Always young(L17)
 
 > https://www.bilibili.com/video/BV1h24y1L7b1/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 He always does this!(L18)
 
 > https://www.bilibili.com/video/BV18L411S7Gj/?vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 Sold out(L19)
 
 > https://www.bilibili.com/video/BV1Jv4y1p7bn/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 One man in a boat(L20)
 
 > https://www.bilibili.com/video/BV1Dk4y1e7Fr/?vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 Mad or not(L21)
 
 > https://www.bilibili.com/video/BV1fN411A7Mj/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 A glass envelope(L22)
 
 > https://www.bilibili.com/video/BV1kT411s79R/?vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 A new house(L23)
 
 > https://www.bilibili.com/video/BV1kj411F75H/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 It could be worse(L24)
 
 > https://www.bilibili.com/video/BV1EV4y1D7Bg/?vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 # 
