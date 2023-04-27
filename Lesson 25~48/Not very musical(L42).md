@@ -4,15 +4,11 @@ As we had had a long walk through one of the markets of Old Delhi, we stopped at
 
     
 
-
-
 When he began to play a tune, we had our first glimpse of the snake. It rose out of the basket and began to follow the movements of the pipe. We were very much surprised when the snake charmer suddenly began to play jazz and modern pop songs.
 
 当他开始吹奏时，我们第一次看到了那条蛇。它从篮子里爬出来，开始跟着管乐的节奏扭动。当耍蛇人开始吹奏爵士和现在流行乐时，我们更加惊奇了。
 
     
-
-
 
 The snake, however, continued to ‘dance’slowly. It obviously could not tell the difference between Indian music and jazz!
 

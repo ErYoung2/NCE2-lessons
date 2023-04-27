@@ -4,15 +4,11 @@ Mrs. Anne Sterling did not think of the risk she was taking when she ran through
 
     
 
-
-
 In the struggle, the strap broke and, with the bag in their possession, both men started running through the trees. Mrs. Sterling got so angry that she ran after them. She was soon out of breath, but she continued to run.
 
 在争抢中，手提包的带断了，包落入这两个人手里，他们拔腿跑进了树林。斯特林夫人非常生气，就开始追。她马上就喘不上气了，但它继续跑着。
 
     
-
-
 
 When she caught up with them, she saw that they had sat down and were going through the contents of the bag, so she ran straight at them. The men got such a fright that they dropped the bag and ran away. ‘The strap needs mending,’ said Mrs. Sterling later, ‘but they did not steal anything.’
 

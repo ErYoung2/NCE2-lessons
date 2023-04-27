@@ -4,15 +4,11 @@ In 1929, three years after his flight over the North Pole, the American explorer
 
     
 
-
-
 At one point, it seemed certain that their plane would crash. It could only get over the mountains if it rose to 10,000 feet. Byrd at once ordered his men to throw out two heavy food sacks. The plane was then able to rise and it cleared the mountains by 400 feet.
 
 在某个地方，他们的飞机似乎要坠毁了。只有飞过10000英尺的告诉才能飞过高山。伯德马上要他的团队扔掉两个沉重的食物袋。这飞机才能升高，超过山峰400英尺飞过去了。
 
     
-
-
 
 Byrd now knew that he would be able to reach the South Pole which was 300 miles away, for there were no more mountains in sight. The aircraft was able to fly over the endless white plains without difficulty.
 
