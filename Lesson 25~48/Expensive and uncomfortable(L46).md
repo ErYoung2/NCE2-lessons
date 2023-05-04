@@ -4,15 +4,11 @@ When a plane from London arrived at Sydney airport, workers began to unload a nu
 
     
 
-
-
 He was astonished at what he found. A man was lying in the box on top of a pile of woolen goods. He was so surprised at being discovered that he did not even try to run away. After he was arrested, the man admitted hiding in the box before the plane left London.
 
 他很惊讶于他的发现。箱内有一个人正躺在一堆毛织品之上，他也很惊讶于他看到的，以至于他都没试图逃跑。当他被逮捕时，这个男人承认他在飞机离开伦敦之前藏在了箱子里。
 
     
-
-
 
 He had had a long and uncomfortable trip, for he had been confined to the wooden box for over eighteen hours. The man was ordered to pay $3,500 for the cost of the trip. The normal price of a ticket is $2,000!
 

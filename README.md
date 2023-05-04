@@ -102,147 +102,99 @@ It could be worse(L24)
 
 > https://www.bilibili.com/video/BV1EV4y1D7Bg/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 ### Lesson 25~48
 
 Do the English speak English?(L25)
 
 > https://www.bilibili.com/video/BV1XX4y167pd/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 The best art critics(L26)
 
 > https://www.bilibili.com/video/BV1tv4y1H7WX/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 A wet night(L27)
 
 > https://www.bilibili.com/video/BV1o24y1w7gz/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 No parking!(L28)
 
 > https://www.bilibili.com/video/BV1dk4y1Y7Wz/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 Taxi!(L29)
 
 > https://www.bilibili.com/video/BV1Jh4y1W78Y/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 Football or polo?(L30)
 
 > https://www.bilibili.com/video/BV1FN411A71J/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 Success story(L31)
 
 > https://www.bilibili.com/video/BV14M411L78c/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 Shopping made easy(L32)
 
 > https://www.bilibili.com/video/BV1ms4y1P7kS/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 Out of the darkness(L33)
 
 > https://www.bilibili.com/video/BV1N24y1c7rC/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 Quick work(L34)
 
 > https://www.bilibili.com/video/BV1GM411L7f1/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 Stop thief(L35)
 
 > https://www.bilibili.com/video/BV1Th411E77L/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 Across the channel(L36)
 
 > https://www.bilibili.com/video/BV1Gv4y1n7K1/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 The Olympic Games(L37)
 
 > https://www.bilibili.com/video/BV1gL411v73Q/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 Everything except the weather(L38)
 
 > https://www.bilibili.com/video/BV1xM411V7UN/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 Am I all right?(L39)
 
 > https://www.bilibili.com/video/BV1D24y1c78S/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 Food and talk(L40)
 
 > https://www.bilibili.com/video/BV1Nv4y1E7vw/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 Do you call that a hat?(L41)
 
 > https://www.bilibili.com/video/BV1J24y1c7Qy/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 Not that musical(L42)
 
 > https://www.bilibili.com/video/BV1hc411H7ta/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 Over the south pole(L43)
 
 > https://www.bilibili.com/video/BV1Rs4y1d7o6/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 Through the forest(L44)
 
 > https://www.bilibili.com/video/BV1rm4y127Ck/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 A clear conscience(L45)
 
 > https://www.bilibili.com/video/BV1dT411n7Z4/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 Expensive and uncomfortable(L46)
 
 > https://www.bilibili.com/video/BV1Rk4y1J7kH/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 A thristy ghost(L47)
 
 > https://www.bilibili.com/video/BV1E24y1F7Sr/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 Did you want to tell me something?(L48)
 
