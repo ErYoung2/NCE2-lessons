@@ -2,7 +2,7 @@ Firemen had been fighting the forest fire for nearly three weeks before they cou
 
 在他们控制住火情前，消防员已经努力扑灭山火接近三周了。不久之前，茂密的树林覆盖了方圆几英里的地方。现在，浓烟仍然从温热的大地上升起，笼罩在荒凉的山丘上。冬日已至，山丘对周边的村庄形成了毁灭性的威胁，因为大雨不仅会冲刷掉泥土，也会引起严重的洪水。
 
-    
+        
 
 
 

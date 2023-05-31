@@ -4,6 +4,8 @@ The Hubble telescope was launched into space by NASA on April 20, 1990 at a cost
 
     
 
+    
+
 
 
 The shuttle Endeavour will be taking the astronauts to the Hubble. A robot-arm from the Endeavour will grab the telescope and hold it while the astronauts make the necessary repairs. Of course, the Hubble is above the earth's atmosphere, so it will soon be sending us the clearest pictures of the stars and distant galaxies that we have ever seen. The Hubble will tell us a great deal about the age and size of the universe. By the time you read this, the Rubble's eagle eye will have sent us thousands and thousands of wonderful pictures.
