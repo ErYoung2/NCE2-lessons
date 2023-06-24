@@ -200,148 +200,104 @@ Did you want to tell me something?(L48)
 
 > https://www.bilibili.com/video/BV1tM4y1a7e2/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 ### Lesson 49~72
 
 The end of a dream(L49)
 
 > https://www.bilibili.com/video/BV11k4y1J7ui/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 Taken for a ride(L50)
 
 > https://www.bilibili.com/video/BV19s4y1c7pB/?vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 Reward for virtue(L51)
 
 > https://www.bilibili.com/video/BV1kP41127Gf/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 A pretty carpet(L52)
 
 > https://www.bilibili.com/video/BV1xz4y1Y7MX/?vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 Hot snake(L53)
 
 > https://www.bilibili.com/video/BV1ST41187jJ/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 Sticky fingers(L54)
 
 > https://www.bilibili.com/video/BV15M411G7jr/?vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 Not a gold mine(L55)
 
 > https://www.bilibili.com/video/BV1vo4y1t78i/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 Faster than sound!(L56)
 
 > https://www.bilibili.com/video/BV1Uo4y1t7N8/?vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 Can I help you, madam?(L57)
 
 > https://www.bilibili.com/video/BV15o4y1M75M/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 A blessing in disguise?(L58)
 
 > https://www.bilibili.com/video/BV1Vh4y1Z7TE/?vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 In or out?(L59)
 
 > https://www.bilibili.com/video/BV1qh4y1474y/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 The future(L60)
 
 > https://www.bilibili.com/video/BV1sz4y1z7zK/?vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 Trouble with the Hubble(L61)
 
 > https://www.bilibili.com/video/BV1KL411B76W/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 After the fire(L62)
 
 > https://www.bilibili.com/video/BV1cu411x7BR/?vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 She was not amused(L63)
 
 > https://www.bilibili.com/video/BV1Wo4y1u7gV/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 The Channel Tunnel(L64)
 
 > https://www.bilibili.com/video/BV1VM4y1e7aV/?vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 Jumbo versus the police(L65)
 
 > https://www.bilibili.com/video/BV13k4y1p7mh/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 Sweet as honey!(L66)
 
 > https://www.bilibili.com/video/BV1r8411o7HU/?vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 Volcanoes(L67)
 
 > https://www.bilibili.com/video/BV1Uo4y1E7Pg/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 Persistent(L68)
 
 > https://www.bilibili.com/video/BV1JP411B7s2/?vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 But not murder!(L69)
 
 > https://www.bilibili.com/video/BV1m8411Z7hN/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 Red for danger(L70)
 
 > https://www.bilibili.com/video/BV1NN411k7xd/?vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 A famous clock(L71)
 
 > https://www.bilibili.com/video/BV1du411a7w2/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 A car called bluebird(L72)
 
 > https://www.bilibili.com/video/BV1QN411r7YM/?vd_source=27816c2400a8d15482b71cc9394e1c3a
+
+
+
+## Lesson 73~96

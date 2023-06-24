@@ -14,5 +14,3 @@ It is not long before they are so accustomed to swimming that they can pick up w
 
 Some children can cover the whole length of the pool without coming up for breath even once. Whether they will ever become future Olympic champions, only time will tell. Meanwhile, they should encourage those among us who cannot swim five yards before they are gasping for air.  
 有些孩子能在全程不出水呼吸哪怕一次。他们是否能成为未来的奥运会冠军，只有时间能说明。与此同时，他们对我们中的那些游不了5码就已喘不过气来的人应该是种鼓舞。  
-
-若有收获，就点个赞吧
