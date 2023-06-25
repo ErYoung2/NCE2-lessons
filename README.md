@@ -298,6 +298,50 @@ A car called bluebird(L72)
 
 > https://www.bilibili.com/video/BV1QN411r7YM/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 ## Lesson 73~96
+
+The record-holder(L73)
+
+> https://www.bilibili.com/video/BV11j411Q7nd/?vd_source=27816c2400a8d15482b71cc9394e1c3a
+
+
+
+Out of the limelight(L74)
+
+> https://www.bilibili.com/video/BV1fh411K7w1/?vd_source=27816c2400a8d15482b71cc9394e1c3a
+
+
+
+SOS(L75)
+
+> https://www.bilibili.com/video/BV1sh411T7vU/?vd_source=27816c2400a8d15482b71cc9394e1c3a
+
+
+
+April Fools Day(L76)
+
+> https://www.bilibili.com/video/BV1bo4y1N7ti/?vd_source=27816c2400a8d15482b71cc9394e1c3a
+
+
+
+A successful operation(L77)
+
+> https://www.bilibili.com/video/BV1fM4y1Y7R9/?vd_source=27816c2400a8d15482b71cc9394e1c3a
+
+
+
+The last one?(L78)
+
+> https://www.bilibili.com/video/BV1Gh411T72e/?vd_source=27816c2400a8d15482b71cc9394e1c3a
+
+
+
+By air(L79)
+
+> https://www.bilibili.com/video/BV16s4y1y723/?vd_source=27816c2400a8d15482b71cc9394e1c3a
+
+
+
+The Crystal Palace(L80)
+
+> https://www.bilibili.com/video/BV1Es4y1y7HV/?vd_source=27816c2400a8d15482b71cc9394e1c3a
