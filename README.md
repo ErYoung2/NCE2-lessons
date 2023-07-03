@@ -361,3 +361,27 @@ Never too old to learn(L85)
 Out of control(L86)
 
 > https://www.bilibili.com/video/BV1is4y1r7hn/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
+
+
+
+A perfect alibi(L87)
+
+> https://www.bilibili.com/video/BV15h411N7bR/?vd_source=27816c2400a8d15482b71cc9394e1c3a
+
+
+
+Trapped in a mine(L88)
+
+> https://www.bilibili.com/video/BV1Yh411N71p/?vd_source=27816c2400a8d15482b71cc9394e1c3a
+
+
+
+A slip of the tongue(L89)
+
+> https://www.bilibili.com/video/BV19X4y1v7SH/?vd_source=27816c2400a8d15482b71cc9394e1c3a
+
+
+
+What's for supper?(L90)
+
+> https://www.bilibili.com/video/BV1gm4y1J7J9/?vd_source=27816c2400a8d15482b71cc9394e1c3a
