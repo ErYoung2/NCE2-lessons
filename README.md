@@ -385,3 +385,27 @@ A slip of the tongue(L89)
 What's for supper?(L90)
 
 > https://www.bilibili.com/video/BV1gm4y1J7J9/?vd_source=27816c2400a8d15482b71cc9394e1c3a
+
+
+
+Three men in a basket(L91)
+
+
+
+Asking for trouble(L92)
+
+
+
+A noble gift(L93)
+
+
+
+Future champions(L94)
+
+
+
+A fantasy(L95)
+
+
+
+The dead return(L96)
