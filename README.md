@@ -340,19 +340,13 @@ Monster or fish?(L82)
 
 > https://www.bilibili.com/video/BV1Pj411S79G/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 After the elections(L83)
 
 > https://www.bilibili.com/video/BV1Ru411t7VM/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 On strike(L84)
 
 > https://www.bilibili.com/video/BV1wF411o73s/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 Never too old to learn(L85)
 
@@ -362,25 +356,17 @@ Out of control(L86)
 
 > https://www.bilibili.com/video/BV1is4y1r7hn/?spm_id_from=333.999.0.0&vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 A perfect alibi(L87)
 
 > https://www.bilibili.com/video/BV15h411N7bR/?vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 Trapped in a mine(L88)
 
 > https://www.bilibili.com/video/BV1Yh411N71p/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 A slip of the tongue(L89)
 
 > https://www.bilibili.com/video/BV19X4y1v7SH/?vd_source=27816c2400a8d15482b71cc9394e1c3a
-
-
 
 What's for supper?(L90)
 
@@ -392,17 +378,25 @@ Three men in a basket(L91)
 
 Asking for trouble(L92)
 
+    
+
 
 
 A noble gift(L93)
+
+    
 
 
 
 Future champions(L94)
 
+    
+
 
 
 A fantasy(L95)
+
+    
 
 
 
