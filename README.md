@@ -380,34 +380,18 @@ Asking for trouble(L92)
 
 > https://www.bilibili.com/video/BV1BW4y1f7mZ/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
-
-
 A noble gift(L93)
 
-    
-
-
+> https://www.bilibili.com/video/BV1vj411Z7Gp/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
 Future champions(L94)
 
-    
-
-
+> https://www.bilibili.com/video/BV1Nh4y1j7zo/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
 A fantasy(L95)
 
     
 
-
-
 The dead return(L96)
-
-
-
-
-
-
-
-
 
 <p align="right">---End</p>
