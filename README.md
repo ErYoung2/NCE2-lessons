@@ -390,8 +390,10 @@ Future champions(L94)
 
 A fantasy(L95)
 
-    
+> https://www.bilibili.com/video/BV1WV4y1b7QE/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
 The dead return(L96)
+
+> https://www.bilibili.com/video/BV1FX4y1Y7XZ/?vd_source=27816c2400a8d15482b71cc9394e1c3a
 
 <p align="right">---End</p>
